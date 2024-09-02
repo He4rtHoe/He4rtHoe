@@ -9,4 +9,36 @@ I love my husband  @he4rtSlutz he is very loyal  !! !
 
 I LOVE HIM VERY MUCHCHCH!! 
 
-<3 also don't mean to me in whisper okay.. I'm very uncomfortable if you do that  !! 
+<3 also don't mean to me in whisper okay.. I'm very uncomfortable if you do that  !!
+
+
+I love my friends ofc I will be friend with new people  !! 
+
+dni 
+Ted the pedophile  
+I hate him so much I wish he would  !! 
+pedophile like Ted! 
+zoophile  , 
+problematic ppl
+
+int ofc
+jealouscupid  ! 
+my husband
+blueberry
+Calvin! 
+ofc yui
+and noncha  
+
+
+likes being with 
+my husband 
+my friends (I always find them in pony town when they left me!! Grr) 
+
+
+likes :
+dog 
+cat 
+books
+grades  ! 
+
+
